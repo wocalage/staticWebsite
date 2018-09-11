@@ -1,3 +1,3 @@
 # staticWebsite
 
-## 买的静态网页，花了我五块钱，有需要就下载吧，可以给你省五块钱
+## I bought it for 5 yuan, if you need the static website, Just take away!
